@@ -5,6 +5,6 @@ Meu nome é _GUSTAVO ROBERTO ANDRADE DOS REIS_ e estou:
 - no Ensino Médio da Joaquim Ferreira Lima.
 
 ## Você pode me encontrar em
-00001089327225SP@al.educacao.sp.gov.br
+00001080706276SP@al.educacao.sp.gov
 
 ![]()
